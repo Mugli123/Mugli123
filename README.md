@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mugli123
+- 👀 I’m interested in software and hardware
+- 🌱 I’m currently learning how to get my ass of my chair
+- 💞️ I’m looking to collaborate on nothing yet babes
+- 📫 How to reach me ehm, contact me on discord. YaKnowThatTransformer12313#8945
